@@ -1,1 +1,0 @@
-# NEOWASH.github.io
